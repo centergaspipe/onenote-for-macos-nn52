@@ -1,4 +1,4 @@
-
+Enhance OneNote for macOS with automatic Automation for OneNote for macOS - custom shortcuts and widgets, the #1 automation. Includes custom shortcuts and widgets for a smoother
 
 
 
